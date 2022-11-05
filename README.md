@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on tech, business and science 
 - 📫 How to reach me via handle-annpeng1005 on instagram :) 
 Pronouns:She/Her
-Fun Facts: Harry Potter series are my Chirstmas movies
+Fun Facts: Harry Potter series are my Chirstmas movies!!!
 
 
